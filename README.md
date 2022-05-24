@@ -1,0 +1,2 @@
+# -jratervez-s
+Tanulunk ezerrel :)
